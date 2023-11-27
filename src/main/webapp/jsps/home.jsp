@@ -18,7 +18,7 @@
 	</span>
 	<span style="font-weight: bold;">
 		Mithun Technologies, 
-		Madhapur Hyderabad, Above ICICI Bank, Beside Meghana Foods,
+		Madhapur Hyderabad, Above ICICI Bank, Beside Durgam cheruvu Foods,
 		Bangalore.
 		+91-9980923226,
 		<br>
